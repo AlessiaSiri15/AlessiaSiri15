@@ -1,6 +1,6 @@
 # 👋 Hey Everyone, I'm Alessia
 
-## 🌹 Welcome to My GitHub Universe!
+## Welcome to My GitHub Universe!
 
 💭 I'm a passionate learner who loves **reading**, **creating**, and **embracing new challenges**.  
 
